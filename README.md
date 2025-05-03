@@ -1,5 +1,5 @@
 # 💫 About Me:
-🧑‍💻  Full Stack Developer <br>👾 Web3 Engineer<br>👯 I’m looking to collaborate on any project<br>⚡ Fun fact - Rest but don't quit
+🧑‍💻  Full Stack Developer <br>👾 Web3 Engineer / Mobile App Dev <br>👯 I’m looking to collaborate on any project<br>⚡ Fun fact - Rest but don't quit
 
 
 ## 🌐 Socials:
